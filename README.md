@@ -1,6 +1,8 @@
 <div align="center">
-<br>
- 
+
+ me when i ragebait bro
+ <br>
+ <img width="30%" src="https://i.postimg.cc/85XN6HMd/ragebait.jpg">
 <br>
  <br>
 ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖

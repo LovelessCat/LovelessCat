@@ -8,11 +8,12 @@
 ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖
 <br>
 <br>
-this is a second accound so i can match ♡
-main: <a href=https://github.com/Euphoricscars>Euphoricscars</a>
+this is a second accound so i can match oomf with peak ♡
+<br>
+main: <a href=https://github.com/euphoricscars>euphoricscars</a>
 <br>
 <br>
-Busy dryhumping my oomfs
+busy dryhumping my oomfs
 <br>
 <img width="30%" src="https://i.postimg.cc/8CmqWXhp/dollsatitagain.jpg">
 <br>

@@ -1,17 +1,13 @@
 <div align="center">
 
-
-<br>  
-<img width="60%" src="https://i.pinimg.com/736x/9a/c1/99/9ac1995e028c2096ef3db6f2983daaab.jpg">
+<br>
+.⊹ ..𓂃 ࣪ ִֶָ ʚଓ་༘࿐
 <br>
 <br>
-⊹ ࣪ 𓂃 ࣪˖ ִֶָ𐀔 ࣪ ˖
+ <img width="30%" src="https://i.pinimg.com/736x/9a/c1/99/9ac1995e028c2096ef3db6f2983daaab.jpg">
 <br>
-
 <br>
-ʚ <a href=https://github.com/euphoricscars>main</a> ɞ
-<br>
-
+⊹ ࣪ 𓂃 <a href=https://github.com/euphoricscars>main</a> ࣪˖ ִֶָ𐀔 ࣪ ˖
 <br>
 
 
